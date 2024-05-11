@@ -20,9 +20,9 @@ Pull requests are welcome. For major changes, please open an issue first to disc
 
 ## Author
 
-👤 **Kishan Kumar Rai**
+👤 **Harsh Panwar**
 
-- Connect With Me [Here](https://linktr.ee/kishan_rajput23) 👈
+- Connect With Me [Here](https://www.linkedin.com/in/harsh-panwar-55a3b4227/) 👈
 
 ## Show Your Support
 
